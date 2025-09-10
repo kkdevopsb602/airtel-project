@@ -1,1 +1,1 @@
- i am from uk and us
+ i am from uk
